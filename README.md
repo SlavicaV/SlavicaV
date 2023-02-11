@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
+🏢Nastavnica u skoli
+💻OS "Vladislav Petkovic Dis"
+📧slavica.vukajlovic81@gmail.com
